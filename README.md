@@ -16,4 +16,4 @@ There are 10 questions in CHALLANGE ROUND , each right answer will be awarded $1
 
 By this way you can win upto ONE MILLION cash prize in USD. 
 
-(don't find me for money if you win the game)
+
